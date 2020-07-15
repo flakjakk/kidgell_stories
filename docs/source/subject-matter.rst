@@ -6,70 +6,17 @@ Subject matter
    
    paddock
    mpame
-
-########
-Chiltley
-########
-
-
-###########
-East London
-###########
+   chiltley
+   eastlondon
+   kimberley
+   paarl
 
 
-*************
-Porter Street
-*************
+Some ideas:
 
-************
-Moore Street
-************
+Places visited
 
-************************
-The Maris Stella Convent
-************************
+People we mingled with
 
-******************
-The Kennaway Hotel
-******************
+Things we did
 
-****************
-Selborne Primary
-****************
-
-The Tuck Shop 
-The School Orchestra
-
-
-**********************
-Quigney Baptist Church
-**********************
-
-
-#########
-Kimberley
-#########
-
-
-Piano lessons at the theatre
-The Swimming Pool
-
-****************
-13 Crossman Road
-****************
-
-***********
-The Library
-***********
-
-****************************
-Kimberley Preparatory School
-****************************
-
-=====
-Rugby
-=====
-
-****************************
-Kimberley Boys Junior School
-****************************
