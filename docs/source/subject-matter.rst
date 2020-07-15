@@ -14,3 +14,4 @@ Subject matter
 
 ## 13 Crossman Road
 ## The Library
+## Kimberley Boys Junior School
