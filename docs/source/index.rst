@@ -1,13 +1,13 @@
 
 
-Welcome to the Kidgell Stories's !
+Welcome to the Kidgell Stories !
 ==================================
 
 .. toctree::
    :maxdepth: 2
    :caption: Contents:
 
-    background
+   background
 
 
 
