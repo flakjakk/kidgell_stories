@@ -10,6 +10,7 @@ Subject matter
    eastlondon
    kimberley
    paarl
+   benoni
 
 
 Some ideas:
