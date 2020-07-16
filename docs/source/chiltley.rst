@@ -15,7 +15,7 @@ I found a bogey in the factory. It came from one of the cane trolleys, and I dec
 
 Going camping in Oribi Gorge with Peter Holmes in his short-wheel-base Landrover
 
-Peter collected us at the C residence and drove us to the Gorge. We trekked into the Gorge and eventually found an cliff and we camped under a massive overhang. We built a fire as darkness was falling then picked out places to sleep and sat around cooking something to munch, then we chatted away until we fell asleep.
+Peter collected us at the C residence and drove us to the Gorge. We trekked into the Gorge and eventually found a cliff with a massive overhang which we decided to use as our camp. We built a fire as darkness was falling then picked out places to bed down and sat around cooking something to munch, then we chatted away until we fell asleep.
 
 Living in the cottage with Geoff
 
