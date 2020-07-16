@@ -38,8 +38,11 @@ House 1
 #######
 
 * Playing the mouth-organ on the water tower
-* Catties
 * Mowing the grass with Geoff
+
+Catties
+
+We would cut old tyre tubes up to make catties, and had much fun using the [still existing] windows on the factory exterior for target practice.
 
 Playing squash at the Farmer's Hall
 

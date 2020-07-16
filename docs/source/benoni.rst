@@ -12,3 +12,5 @@ Dad driving over my scooter and thinking it was one of us kids.
 Learning to ride a bicycle and falling into the cactus.
 
 Having to catch the bus home, losing the 5c bus-fare and walking all the way home.
+
+Dad making us wooden houses painted white with red roofs.

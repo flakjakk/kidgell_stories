@@ -30,7 +30,7 @@ Prospect
 
 The Sphinx
 
-Archaeology
+Archeology
 
 Shooting
 
