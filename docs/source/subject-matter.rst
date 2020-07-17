@@ -21,3 +21,5 @@ People we mingled with
 
 Things we did
 
+Other things we did
+
