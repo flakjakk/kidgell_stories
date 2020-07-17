@@ -4,7 +4,7 @@ Where
 
 .. toctree::
    :maxdepth: 2
-   :caption: Contents:
+   :caption: Places we lived in:
 
    paddock
    mpame
