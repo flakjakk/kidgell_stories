@@ -8,7 +8,7 @@ Welcome to the Kidgell Stories !
    :caption: Contents:
 
    background
-   subject-matter
+   where
 
 
 Indices and tables
